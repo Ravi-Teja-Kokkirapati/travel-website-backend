@@ -1,1 +1,0 @@
-kokkirapatiraviteja@gmail.com
